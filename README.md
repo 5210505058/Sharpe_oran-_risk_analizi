@@ -1,0 +1,1 @@
+# Sharpe_oran-_risk_analizi
